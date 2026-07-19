@@ -10,4 +10,4 @@
 
 <h6 style="color: #447878;">sign⠀⠀our atabook⠀⠀for⠀⠀cookie.</h6>
 
-<a href="https://rawblood.atabook.org/">atabook.</a>⠀⠀⠀⠀<a href="https://www.tumblr.com/tooblindtizzy/797923740146171904/hypothetical-tdsanrio-crossover-the-idea-would?source=share">art credit.</a>
+<a href="https://rawblood.atabook.org/">atabook.</a>⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://www.tumblr.com/tooblindtizzy/797923740146171904/hypothetical-tdsanrio-crossover-the-idea-would?source=share">art credit.</a>
