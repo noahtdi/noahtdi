@@ -2,7 +2,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=noahtdi&label=TOTAL+DRAMA+CONTESTANTS&color=447878&base=573) 
+![](https://komarev.com/ghpvc/?username=noahtdi&label=TOTAL+DRAMA+CONTESTANTS&color=447878&base=180) 
 
 <h6 style="color: #447878;">i don't check who i'm following sorry not sorry.</h6>
 
